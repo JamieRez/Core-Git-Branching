@@ -22,6 +22,11 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
+"How did you get in here!?" replied the young zookeeper stepping out of the dense shrubbery.
+"I entered through the door", said Larry.
+"Well, I suppose you deserve to see some animals..., Come let's see the koalas."
+The zookeeper then proceeded to guide Larry through the zoo.
+
 Larry met the Unicorn King who granted him magic powers.
 The end.
 
