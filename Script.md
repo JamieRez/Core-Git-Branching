@@ -22,23 +22,23 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-<<<<<<< HEAD
-Larry finally landed to the small and cozy intestine. "I want to go home", cried Larry.
-Suddenly a magical unicorn king ruptured through the rectum and came to Larry.
-"Cry no more, dear boy. I know the way out!" exclaimed the Unicorn King. "Sit on my Horn!"
-Larry carefully placed his bottom on the magical beast, and immediately died of pleasure.
-"Welcome Home", said the Unicorn king as he ate Larry's remains.
-=======
 "How did you get in here!?" replied the young zookeeper stepping out of the dense shrubbery.
 "I entered through the door", said Larry.
 "Well, I suppose you deserve to see some animals..., Come let's see the koalas."
 The zookeeper then proceeded to eat Larry.
 
 "Where am I?" said Larry staring at the koalas in the zookeeper's stomach.
+"You're in paradise!" said the bigger koala. "Who are you?" asked Larry.
+"Im the Friendly Koala, you are now my slave!" "Slave??" Larry remarked?
+"Well that's not friendly at all! You're a bad koala!"
+"Digest that boy!", ordered the Friendly Koala to his koala inferiors.
+Larry was then thrown into a slimy hole. 
 
-Larry met the Unicorn King who granted him magic powers.
-The end.
->>>>>>> zookeeper
+Larry finally landed to the small and cozy intestine. "I want to go home", cried Larry.
+Suddenly a magical unicorn king ruptured through the rectum and came to Larry.
+"Cry no more, dear boy. I know the way out!" exclaimed the Unicorn King. "Sit on my Horn!"
+Larry carefully placed his bottom on the magical beast, and immediately died of pleasure.
+"Welcome Home", said the Unicorn king as he ate Larry's remains.
 
 ## Cast
 
