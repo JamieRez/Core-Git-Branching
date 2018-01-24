@@ -25,7 +25,9 @@ He took a tentative step through the door and followed the stone path overgrown 
 "How did you get in here!?" replied the young zookeeper stepping out of the dense shrubbery.
 "I entered through the door", said Larry.
 "Well, I suppose you deserve to see some animals..., Come let's see the koalas."
-The zookeeper then proceeded to guide Larry through the zoo.
+The zookeeper then proceeded to eat Larry.
+
+"Where am I?" said Larry staring at the koalas in the zookeeper's stomach.
 
 Larry met the Unicorn King who granted him magic powers.
 The end.
