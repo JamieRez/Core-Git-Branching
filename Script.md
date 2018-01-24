@@ -22,8 +22,11 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Larry met the Unicorn King who granted him magic powers.
-The end.
+Larry finally landed to the small and cozy intestine. "I want to go home", cried Larry.
+Suddenly a magical unicorn king ruptured through the rectum and came to Larry.
+"Cry no more, dear boy. I know the way out!" exclaimed the Unicorn King. "Sit on my Horn!"
+Larry carefully placed his bottom on the magical beast, and immediately died of pleasure.
+"Welcome Home", said the Unicorn king as he ate Larry's remains.
 
 ## Cast
 
